@@ -5,7 +5,9 @@
 1. 举报
 	> 没有网络安全就没有国家安全
 	
-	资本家是不会满足的，当他们把触手伸向我们的政府，开始干扰立法时，人民谈何当家做主。古有Google操控选票，今有TX操作搜索引擎排名，我们不应重蹈覆辙。详情参见http://nga.178.com/read.php?tid=21605383&forder_by=postdatedesc&rand=924（注，Google也完全被影响，bing真网站排名第二）
+	资本家是不会满足的，当他们把触手伸向我们的政府，开始干扰立法时，人民谈何当家做主。古有Google操控选票，今有TX操作搜索引擎排名，我们不应重蹈覆辙。详情参见http://nga.178.com/read.php?tid=21605383&forder_by=postdatedesc&rand=924（注，Google也完全被影响，bing正常网站排名第二）
+	PS：这假网站的子站时间还是错的，真不知道是钓鱼站点还是镜像站点。
+	<a href="http://www.npc.gov.cn/zgrdw/npc/flcazqyj/node_8196.htm"><img src="https://s1.ax1x.com/2020/05/06/Ykfdoj.png" alt="http://www.npc.gov.cn/zgrdw/npc/flcazqyj/node_8196.htm" /></a>
 
 2. 证据备份
 	> 每一句话都该成为呈堂证供，而不是消逝无声
